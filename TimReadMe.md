@@ -1,0 +1,1 @@
+My name is Tim. I am 25 years old and have lived in Missoula for 7 years. I am studying software engineering at the University of Montana. I hope to graduate in spring of 2026. I enjoy golfing and snowboarding.
